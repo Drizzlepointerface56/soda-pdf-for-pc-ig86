@@ -1,4 +1,4 @@
-# 
+# Enhance Soda PDF for PC | Soda PDF for Windows with Soda PDF for PC | Soda PDF for Windows advanced Addon: image-editing & export-to-Excel, the #1 addon. Includes image-editing
 
 
 
